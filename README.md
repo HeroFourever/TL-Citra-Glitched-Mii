@@ -26,5 +26,4 @@ Extra links:
 
 Mod your 3ds: https://3ds.hacks.guide/
 
-See how I made this: https://www.youtube.com/@HeroFourever
-
+See how I made this: https://youtu.be/v3nJdUSVQuI?si=HX44KedIQLZSee73
