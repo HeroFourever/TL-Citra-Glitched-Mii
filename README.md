@@ -1,3 +1,8 @@
+EDIT: If you don't want to mod your 3ds but still want a special mii I have added a new qr code that keeps the gold pants in vanilla Tomodachi Life!!!! 
+(This qr code isn't made by Nintendo so scan at your own risk!)
+
+-----------------------------------------------------------------------------------------------------------
+
 Hi!!!! So you want Citra's glitch mii on your island? Then let's get started!
 
 
